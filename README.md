@@ -3,7 +3,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ( -_•)╦̵̵̿╤─ㅤaloha! i'm fantasy - dressy & upbeat & sanguine twink  
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ｡˚｡❀ ⋆ ｡୨ ʚɞ ୧ ｡ ⋆ ❀｡˚｡ i love fashion!!!!! i'm my own brand! ˚｡❀ ⋆ ｡୨ ʚɞ ୧ ｡ ⋆ ❀˚｡
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ☽｡˚ㅤ...★ㅤcheck out my strawpage u won't regret ★...ㅤ｡˚☾
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ☽ㅤ｡˚ㅤ...★ㅤcheck out my strawpage u won't regret ★...ㅤ｡˚ㅤ☾
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
