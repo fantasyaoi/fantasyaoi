@@ -1,8 +1,8 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(^-_•^)╦̵̵̿╤─ㅤaloha! i'm fantasy - dressy & upbeat & sanguine twink  
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ｡˚｡❀ ⋆ ｡୨ ʚɞ ୧ ｡ ⋆ ❀｡˚｡ i love fashion!!!!! i'm my own brand! ˚｡❀ ⋆ ｡୨ ʚɞ ୧ ｡ ⋆ ❀˚｡
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(^-_•^)╦̵̵̿╤─ㅤaloha! i'm fantasy - dressy & upbeat & sanguine twink  
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ｡˚｡❀ ⋆ ｡୨ ʚɞ ୧ ｡ ⋆ ❀｡˚｡ i love fashion!!!!! i'm my own brand! ˚｡❀ ⋆ ｡୨ ʚɞ ୧ ｡ ⋆ ❀˚｡
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ☽ㅤ｡˚ㅤ..★ㅤcheck out my strawpage u won't regret ★..ㅤ｡˚ㅤ☾
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
